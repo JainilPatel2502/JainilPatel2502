@@ -1,4 +1,4 @@
-# 💡 Jainil Patel
+# Jainil Patel
 
 ## 🚀 About Me
 
